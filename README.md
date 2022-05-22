@@ -11,4 +11,6 @@ Voluntary Return，从英国回中国的新主张
 
 https://www.gov.uk/return-home-voluntarily
 
+网页存档于 https://web.archive.org/web/20220507022023/https://www.gov.uk/return-home-voluntarily
+
 ![image](https://github.com/nyse-znh/voluntary-return/blob/main/IMG_0691.JPG)
