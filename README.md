@@ -10,3 +10,5 @@ Voluntary Return，从英国回中国的新主张
 官方介绍链接见下方
 
 https://www.gov.uk/return-home-voluntarily
+
+![image](https://github.com/nyse-znh/voluntary-return/blob/main/IMG_0691.JPG)
